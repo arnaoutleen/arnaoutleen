@@ -1,5 +1,7 @@
-# Hi there 👋
+# Howdy.
 
-## Introduction
-
-I'm Leen (she/her), a Bioengineering PhD student at the UC Berkeley-UCSF Graduate Program in Bioengineering. I like cats, kendo, and tea. I graduated with a BS in biomedical engineering from Boston University in May 2021. 
+Leen (she/they). Bioengineering PhD student at UC Berkeley and UCSF.
+Chlamydia and adaptive immune response geneticist.
+Autistic, disabled, awesome.
+anti-IL-6 fan club.
+Union lady.
